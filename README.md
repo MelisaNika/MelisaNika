@@ -8,3 +8,5 @@
 - 📫 How to reach me: I would probably ghost you, sorry in advance
 - 😄 Pronouns: she/her but why would you use it if you're not reaching to me
 - ⚡ Fun fact: I love games, and most of my statuses on dc are per "hamster doing sth"
+
+one day, maybe I'll make a nicer profile
